@@ -1,0 +1,1 @@
+# computadorizacao-assistida-por-ia
